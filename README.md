@@ -1,0 +1,2 @@
+# botkillaz
+botkillaz scam bucket
